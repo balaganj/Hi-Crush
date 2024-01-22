@@ -1,1 +1,1 @@
-You can visit here https://balaganj.github.io/Hi-Crush/ thank you.
+You can visit here https://balaganj.github.io/Hi-Crush/ thanks.
